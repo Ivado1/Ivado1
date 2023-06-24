@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Ivan Dolinin
 - 📫 How to reach me ivadogames@mail.ru
-- All My Games Here: 👇
+- 📩Telegram https://t.me/ivado1
+- 🎮All My Games Here: 👇
     
 Yandex Games:
 https://yandex.ru/games/developer?name=IvadoGames
